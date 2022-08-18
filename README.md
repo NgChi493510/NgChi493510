@@ -1,0 +1,1 @@
+CHI_GIT_COURSE
